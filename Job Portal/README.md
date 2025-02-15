@@ -10,4 +10,4 @@ She can look for skills demanded by different recruiters in relevance to her ski
 
 
 # Go through this presentation to get more idea.
-https://docs.google.com/presentation/d/1sPWOFqdM2RwxcdEdNdpdvRRDd2pebHFk/edit?usp=sharing&ouid=102359307897474759097&rtpof=true&sd=true
+https://docs.google.com/presentation/d/15eMlsqKaMdCVvgAyZ0Tu8RbHpalBV-B1/edit?usp=sharing&ouid=116720640254663980742&rtpof=true&sd=true
